@@ -1,1 +1,1 @@
-# Gener-ting-P-ssw0rd
+# Gener@ting-P@ssw0rd
